@@ -5,6 +5,8 @@ sssss i am sssnake and this is flipper and we are the hero's of the sssea and ss
 
  ## snake
 
+ ![hero snake relaxing](https://cdn.shopify.com/s/files/1/0343/3621/1079/products/Slang_530x@2x.jpg?v=1605852359)
+
  hoi daar ik ben snake. ik weet het, mijn naam is heel ironisch aangezien ik een slang ben. maar ik ben dus een superheld samen met mijn parktner flipper. ik red mensen op land en dankzij flipper kan ik ook vissen redden in de zee. mijn job is wel moeilijk voornamelijk omdat ik geen handen heb.
 
 ![hellena](https://pbs.twimg.com/profile_images/1316304687860191232/T4bfEREK_400x400.jpg)
@@ -44,4 +46,10 @@ coming out on the 30th of september.
 ## other superheros you should sheck out
 
 ^[blauwe ninja](https://www.gannett-cdn.com/-mm-/039172b1806912a899086417b1468e321fcb9fdd/c=0-205-2764-3890/local/-/media/2017/06/29/USATODAY/USATODAY/636343354450642079-NJGO-VERT-ELEMENT-Jay-DOM-2764x4096-master-rev-1.jpg)
+
+^[hulk](https://www.manners.nl/wp-content/uploads/2021/02/marvel-comics-immortal-hulk-anti-semitische-easter-egg-jewery-avengers.jpg)
+
+^[kardashian](https://i.pinimg.com/564x/9a/0d/fd/9a0dfde3adad7803166ad2122af5c0a3.jpg)
+
+^[angel](https://pbs.twimg.com/profile_images/1421621297763733505/xg2SJfJD_400x400.jpg)
 
