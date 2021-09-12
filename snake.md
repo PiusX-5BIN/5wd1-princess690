@@ -41,3 +41,7 @@ coming out on the 4th of april
 
 coming out on the 30th of september.
 
+## other superheros you should sheck out
+
+^[blauwe ninja](https://www.gannett-cdn.com/-mm-/039172b1806912a899086417b1468e321fcb9fdd/c=0-205-2764-3890/local/-/media/2017/06/29/USATODAY/USATODAY/636343354450642079-NJGO-VERT-ELEMENT-Jay-DOM-2764x4096-master-rev-1.jpg)
+
