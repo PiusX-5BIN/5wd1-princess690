@@ -17,4 +17,9 @@ dag. ik ben Tom. ik ben heel boos dat snake me gered heeft. ik wou niet gered wo
 
 ![selena](https://images0.persgroep.net/rcs/rEgxBJsm8P0o0v2UN5Y9Bc5k3eI/diocontent/174335311/_fitwidth/694/?appId=21791a8992982cd8da851550a453bd7f&quality=0.8)
 
-hi, i'm selena. i don't know how to speak dutch so i'm just going to do it in english. to tell you the truth snake didn't actually save me. it was all just a misunderstanding. i was shooting a action movie and snake tried to save me when i was doing a stunt.
+hi, i'm selena. i don't know how to speak dutch so i'm just going to do it in english. to tell you the truth snake didn't actually save me. it was all just a misunderstanding. i was shooting a action movie and snake tried to save me when i was doing a stunt. but still snake is just the cutest. thanks snake although i didn't actually need it i am tough.
+
+![krabs](https://media.s-bol.com/NkD3PMYL64OL/550x766.jpg)
+
+hi, mijn is krabs. ik weet dat het raar is aangezien ik een zeepaardje ben maar mijn ouders hadden iets met rare namen. maar ik was dus gered door flipper ik zou eigenlijk gered zijn geweest door snake maar niet dus. snake is een slang en kan daarom niet ademen onder water maar ik zat vast onder een kleine kei onder water dus moest flipper mij wel komen helpen. flipper is mijn held en ook een beetje mijn type als iemand zijn nummer weet kan je het dan aan mij geven.
+
