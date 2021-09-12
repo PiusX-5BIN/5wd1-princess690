@@ -23,3 +23,21 @@ hi, i'm selena. i don't know how to speak dutch so i'm just going to do it in en
 
 hi, mijn is krabs. ik weet dat het raar is aangezien ik een zeepaardje ben maar mijn ouders hadden iets met rare namen. maar ik was dus gered door flipper ik zou eigenlijk gered zijn geweest door snake maar niet dus. snake is een slang en kan daarom niet ademen onder water maar ik zat vast onder een kleine kei onder water dus moest flipper mij wel komen helpen. flipper is mijn held en ook een beetje mijn type als iemand zijn nummer weet kan je het dan aan mij geven.
 
+## the eater
+
+![the eater](https://lowres.cartooncollections.com/snakes-giant_snakes-boa_constrictors-phones-mobile_phones-technology-WD600023_low.jpg)
+
+coming out on the 5th of july 
+
+## the everyday life of the friendly neighborhood snake
+
+![the everyday life of the friendly neighborhood snake](https://www.cartoonistgroup.com/properties/speedbump/art_images/cg5eb8feca7e001.jpg)
+
+coming out on the 4th of april
+
+## how it feels to be the sidekick of a supervillain
+
+![how it feels to be the sidekick of a supervillain](https://static.wikia.nocookie.net/villains/images/9/9c/05f4baa92c0c455012b02c878350ce68--marvel-villains-marvel-characters.jpg/revision/latest/scale-to-width-down/250?cb=20170923003122)
+
+coming out on the 30th of september.
+
