@@ -52,4 +52,3 @@ coming out on the 30th of september.
 ^[kardashian](https://i.pinimg.com/564x/9a/0d/fd/9a0dfde3adad7803166ad2122af5c0a3.jpg)
 
 ^[angel](https://pbs.twimg.com/profile_images/1421621297763733505/xg2SJfJD_400x400.jpg)
-
