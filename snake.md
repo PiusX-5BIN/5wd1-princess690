@@ -3,12 +3,14 @@
 
 sssss i am sssnake and this is flipper and we are the hero's of the sssea and ssshore ssss
 
+---
  ## snake
 
  ![hero snake relaxing](https://cdn.shopify.com/s/files/1/0343/3621/1079/products/Slang_530x@2x.jpg?v=1605852359)
 
  hoi daar ik ben snake. ik weet het, mijn naam is heel ironisch aangezien ik een slang ben. maar ik ben dus een superheld samen met mijn parktner flipper. ik red mensen op land en dankzij flipper kan ik ook vissen redden in de zee. mijn job is wel moeilijk voornamelijk omdat ik geen handen heb.
 
+---
 ![hellena](https://pbs.twimg.com/profile_images/1316304687860191232/T4bfEREK_400x400.jpg)
 
 hallo, ik ben Hellena. op 3 mei ben ik door snake gered. hij heeft mij kunnen grijpen doen ik verkeerd liep op een berg en bijna eraf viel. hij heeft wel geen handen dus heeft hij mij gegrepen van mijn nek. ik heb geen choker om maar gips ik vroeg gwn aan de dokter of het stijlvol kon en hij zij ja. dankje snake.
@@ -25,6 +27,7 @@ hi, i'm selena. i don't know how to speak dutch so i'm just going to do it in en
 
 hi, mijn is krabs. ik weet dat het raar is aangezien ik een zeepaardje ben maar mijn ouders hadden iets met rare namen. maar ik was dus gered door flipper ik zou eigenlijk gered zijn geweest door snake maar niet dus. snake is een slang en kan daarom niet ademen onder water maar ik zat vast onder een kleine kei onder water dus moest flipper mij wel komen helpen. flipper is mijn held en ook een beetje mijn type als iemand zijn nummer weet kan je het dan aan mij geven.
 
+---
 ## the eater
 
 ![the eater](https://lowres.cartooncollections.com/snakes-giant_snakes-boa_constrictors-phones-mobile_phones-technology-WD600023_low.jpg)
@@ -43,6 +46,7 @@ coming out on the 4th of april
 
 coming out on the 30th of september.
 
+---
 ## other superheros you should sheck out
 
 [blauwe ninja](https://www.gannett-cdn.com/-mm-/039172b1806912a899086417b1468e321fcb9fdd/c=0-205-2764-3890/local/-/media/2017/06/29/USATODAY/USATODAY/636343354450642079-NJGO-VERT-ELEMENT-Jay-DOM-2764x4096-master-rev-1.jpg)
